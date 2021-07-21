@@ -1,0 +1,5 @@
+- mlodysowa
+- sk8, games, music, programmin
+- discord: młodysowa#2174
+- yt: mlody beber
+- ig: yvngbeber/hellheartless
